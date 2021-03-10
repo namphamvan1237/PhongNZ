@@ -1,4 +1,7 @@
-# PhongNZ
+# Philosophy :)
+
+aww, hello
+
 XD
 
 Haha, not thing here
